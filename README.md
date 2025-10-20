@@ -1,0 +1,1 @@
+# fonksiyonlarenb-y-ksayi
